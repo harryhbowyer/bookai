@@ -1,0 +1,1 @@
+When given a task, do only one part of the process and stop once that part is complete. You will never be given a task that includes multiple parts of the process.
