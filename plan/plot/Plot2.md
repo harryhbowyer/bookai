@@ -1,0 +1,3 @@
+# Plot 2: Gathering the Band
+
+Lirien encounters dwarf artificer Blackbrew Thorne in the city's underbelly, where he tinkers with gadgets to hunt the beasts that destroyed his Deepholm forge-family; together, they recruit human barbarian Ironfist Garrick from a tavern brawl, who seeks his clan's rune-etched hammer after a similar raid on his mountain village, and elf ranger Greenwhisper Sylara, exiled from the Woods for her visions of the spreading curse.

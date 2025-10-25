@@ -1,0 +1,3 @@
+# Plot 6: Alliances and Revelations
+
+Recruiting side characters like Quickfingers Fizzle, a goblin tinker for comic relief and trap-disarming, and Stormcleaver Ragna, a fierce orc warrior for frontline support, the protagonists delve into ancient ruins; Sylara communes with uncorrupted beasts to reveal that elf sorceress Nightshade Vesper is the mastermind, seeking a shadow-veiled orb to unleash eternal night.
