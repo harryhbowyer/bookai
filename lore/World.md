@@ -1,1 +1,1 @@
-A fantasy world filled with different fantasy races, monsters, and magic.
+A fantasy world filled with different fantasy races, monsters, and magic. Not every character has magic or has special properties.
